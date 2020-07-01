@@ -1,0 +1,1 @@
+# comando-para-instalar-TermuxBlack-do-hax4us
